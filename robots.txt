@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://awesomegoods.github.io/sitemap.xml
