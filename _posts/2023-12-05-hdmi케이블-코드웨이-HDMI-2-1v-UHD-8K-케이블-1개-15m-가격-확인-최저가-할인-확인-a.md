@@ -39,7 +39,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 15%  469,000   원
 - 가격: <span style='color:red'>11,550원</span>
-- 리뷰수: 2552  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
 
 ---
 
@@ -56,7 +57,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>8,410원</span>
-- 리뷰수: 2857  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733)
 
 ---
 
@@ -73,7 +75,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>16,500원</span>
-- 리뷰수: 2857  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833)
 
 ---
 
@@ -90,7 +93,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>5,900원</span>
-- 리뷰수: 16419  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618)
 
 ---
 
@@ -107,7 +111,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>11,500원</span>
-- 리뷰수: 2552  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5422048685&traceid=V0-153&itemId=8191616402&vendorItemId=75479742893)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5422048685&traceid=V0-153&itemId=8191616402&vendorItemId=75479742893)
 
 ---
 
@@ -124,7 +129,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>74,500원</span>
-- 리뷰수: 16419  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7401129475&traceid=V0-153&itemId=19156561875&vendorItemId=86275362176)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7401129475&traceid=V0-153&itemId=19156561875&vendorItemId=86275362176)
 
 ---
 
@@ -141,7 +147,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>11,550원</span>
-- 리뷰수: 2552  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
 
 ---
 
@@ -158,7 +165,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>4,940원</span>
-- 리뷰수: 2857  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1806165517&traceid=V0-153&itemId=3073263788&vendorItemId=71061171835)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1806165517&traceid=V0-153&itemId=3073263788&vendorItemId=71061171835)
 
 ---
 
@@ -175,7 +183,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 쿠폰할인가 34%  499,000   원
 - 가격: <span style='color:red'>8,430원</span>
-- 리뷰수: 3430  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6208783792&traceid=V0-153&itemId=12364777792&vendorItemId=79634613416)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6208783792&traceid=V0-153&itemId=12364777792&vendorItemId=79634613416)
 
 ---
 
@@ -192,7 +201,8 @@ HDMI 케이블은 현재 출시된 대부분의 AV 기기에서 지원합니다.
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>4,900원</span>
-- 리뷰수: 16419  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790)
 
 ---
 **HDMI 케이블 구매 시 주의 사항**

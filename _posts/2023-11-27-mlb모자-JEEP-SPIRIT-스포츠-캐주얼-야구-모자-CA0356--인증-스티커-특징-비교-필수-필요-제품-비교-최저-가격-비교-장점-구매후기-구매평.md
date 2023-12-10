@@ -39,7 +39,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 즉시할인가 88%  124,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 10  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
 
 ---
 
@@ -56,7 +57,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 46  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -73,7 +75,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 61%  85,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -90,7 +93,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 60%  80,000   원
 - 가격: <span style='color:red'>35,400원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
 
 ---
 
@@ -107,7 +111,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 즉시할인가 60%  46,800   원
 - 가격: <span style='color:red'>39,800원</span>
-- 리뷰수: 44  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4882278248&traceid=V0-153&itemId=6358214811&vendorItemId=73653491434)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4882278248&traceid=V0-153&itemId=6358214811&vendorItemId=73653491434)
 
 ---
 
@@ -124,7 +129,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 즉시할인가 44%  289,000   원
 - 가격: <span style='color:red'>43,800원</span>
-- 리뷰수: 253  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5417268540&traceid=V0-153&itemId=8169474803&vendorItemId=75457642512)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5417268540&traceid=V0-153&itemId=8169474803&vendorItemId=75457642512)
 
 ---
 
@@ -141,7 +147,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>29,370원</span>
-- 리뷰수: 13  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350747714&traceid=V0-153&itemId=18915042487&vendorItemId=86042296828)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350747714&traceid=V0-153&itemId=18915042487&vendorItemId=86042296828)
 
 ---
 
@@ -158,7 +165,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 즉시할인가 60%  46,800   원
 - 가격: <span style='color:red'>23,600원</span>
-- 리뷰수: 44  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721960139&traceid=V0-153&itemId=20726900132&vendorItemId=87797640982)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721960139&traceid=V0-153&itemId=20726900132&vendorItemId=87797640982)
 
 ---
 
@@ -175,7 +183,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 309  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
 
 ---
 
@@ -192,7 +201,8 @@ MLB 모자는 구단의 로고와 디자인이 들어간 한정판 제품도 많
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>24,900원</span>
-- 리뷰수: 215  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7429586429&traceid=V0-153&itemId=19293214160&vendorItemId=86407908576)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7429586429&traceid=V0-153&itemId=19293214160&vendorItemId=86407908576)
 
 ---
 **MLB 모자 구매시 주의점**

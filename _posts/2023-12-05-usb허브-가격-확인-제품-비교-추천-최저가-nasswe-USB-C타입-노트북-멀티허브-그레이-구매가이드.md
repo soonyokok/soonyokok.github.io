@@ -52,7 +52,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>52,000원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7219265190&traceid=V0-153&itemId=18290246307&vendorItemId=85435989417)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7219265190&traceid=V0-153&itemId=18290246307&vendorItemId=85435989417)
 
 ---
 
@@ -69,7 +70,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>9,900원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=131024407&traceid=V0-153&itemId=385620342&vendorItemId=3937243609)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=131024407&traceid=V0-153&itemId=385620342&vendorItemId=3937243609)
 
 ---
 
@@ -86,7 +88,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>12,900원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=51598848&traceid=V0-153&itemId=182705691&vendorItemId=3434842353)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=51598848&traceid=V0-153&itemId=182705691&vendorItemId=3434842353)
 
 ---
 
@@ -103,7 +106,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>11,700원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7170574913&traceid=V0-153&itemId=18064020307&vendorItemId=85217690771)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7170574913&traceid=V0-153&itemId=18064020307&vendorItemId=85217690771)
 
 ---
 
@@ -120,7 +124,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>30,150원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6427398130&traceid=V0-153&itemId=13855470725&vendorItemId=81105478526)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6427398130&traceid=V0-153&itemId=13855470725&vendorItemId=81105478526)
 
 ---
 
@@ -137,7 +142,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>98,300원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570545329&traceid=V0-153&itemId=14747331021&vendorItemId=85436038206)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570545329&traceid=V0-153&itemId=14747331021&vendorItemId=85436038206)
 
 ---
 
@@ -154,7 +160,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>23,490원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5122556863&traceid=V0-153&itemId=7003577092&vendorItemId=74295844835)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5122556863&traceid=V0-153&itemId=7003577092&vendorItemId=74295844835)
 
 ---
 
@@ -171,7 +178,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>16,150원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6568495532&traceid=V0-153&itemId=14735203890&vendorItemId=81975730455)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6568495532&traceid=V0-153&itemId=14735203890&vendorItemId=81975730455)
 
 ---
 
@@ -188,7 +196,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>18,250원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6427397919&traceid=V0-153&itemId=13855469119&vendorItemId=81105476758)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6427397919&traceid=V0-153&itemId=13855469119&vendorItemId=81105476758)
 
 ---
 
@@ -205,7 +214,8 @@ USB 허브는 USB 포트가 부족한 경우 유용하게 사용할 수 있는 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>29,900원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=286060838&traceid=V0-153&itemId=907145511&vendorItemId=5271865719)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=286060838&traceid=V0-153&itemId=907145511&vendorItemId=5271865719)
 
 ---
 **USB 허브 구매 시 주의점**

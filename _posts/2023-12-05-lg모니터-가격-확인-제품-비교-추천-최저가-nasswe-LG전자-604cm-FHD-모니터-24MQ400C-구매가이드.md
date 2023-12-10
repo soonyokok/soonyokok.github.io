@@ -35,7 +35,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>144,900원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 ---
 
@@ -52,7 +53,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>228,900원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482)
 
 ---
 
@@ -69,7 +71,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>89,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7656121364&traceid=V0-153&itemId=20384178650&vendorItemId=87479082254)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7656121364&traceid=V0-153&itemId=20384178650&vendorItemId=87479082254)
 
 ---
 
@@ -86,7 +89,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>309,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001)
 
 ---
 
@@ -103,7 +107,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>299,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87855186449)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87855186449)
 
 ---
 
@@ -120,7 +125,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>109,000원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410658123&traceid=V0-153&itemId=19200319460&vendorItemId=86317684619)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410658123&traceid=V0-153&itemId=19200319460&vendorItemId=86317684619)
 
 ---
 
@@ -137,7 +143,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>259,370원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822)
 
 ---
 
@@ -154,7 +161,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>90,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413)
 
 ---
 
@@ -171,7 +179,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>350,100원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322)
 
 ---
 
@@ -188,7 +197,8 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>129,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105)
 
 ---
 **LG 모니터 구매시 주의점**

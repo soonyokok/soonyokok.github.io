@@ -35,7 +35,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 67%  269,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 1121  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
 
 ---
 
@@ -52,7 +53,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 53  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -69,7 +71,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 쿠폰할인가 94%  98,000   원
 - 가격: <span style='color:red'>35,400원</span>
-- 리뷰수: 30  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
 
 ---
 
@@ -86,7 +89,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 60%  80,000   원
 - 가격: <span style='color:red'>27,600원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727077836&traceid=V0-153&itemId=20753702464&vendorItemId=87824006500)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727077836&traceid=V0-153&itemId=20753702464&vendorItemId=87824006500)
 
 ---
 
@@ -103,7 +107,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 342  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
 
 ---
 
@@ -120,7 +125,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 즉시할인가 44%  289,000   원
 - 가격: <span style='color:red'>28,250원</span>
-- 리뷰수: 257  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082727&vendorItemId=74102003655)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082727&vendorItemId=74102003655)
 
 ---
 
@@ -137,7 +143,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 12  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -154,7 +161,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 14%  20,900   원
 - 가격: <span style='color:red'>22,050원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7729235265&traceid=V0-153&itemId=20765334294&vendorItemId=87835371639)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7729235265&traceid=V0-153&itemId=20765334294&vendorItemId=87835371639)
 
 ---
 
@@ -171,7 +179,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: <span style='color:red'>28,250원</span>
-- 리뷰수: 114  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
 
 ---
 
@@ -188,7 +197,8 @@ MLB모자는 미국 메이저리그 야구단의 공식 파트너십을 통해 �
 
 - 할인율과 원래가격: 61%  85,000   원
 - 가격: <span style='color:red'>23,600원</span>
-- 리뷰수: 8  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727075893&traceid=V0-153&itemId=20753691452&vendorItemId=87823996034)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727075893&traceid=V0-153&itemId=20753691452&vendorItemId=87823996034)
 
 ---
 **MLB모자 구매 시 주의점**

@@ -39,7 +39,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>13,390원</span>
-- 리뷰수: 1403  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1955037383&traceid=V0-153&itemId=3322113541&vendorItemId=71308978529)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1955037383&traceid=V0-153&itemId=3322113541&vendorItemId=71308978529)
 
 ---
 
@@ -56,7 +57,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>49,520원</span>
-- 리뷰수: 389  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6807411588&traceid=V0-153&itemId=16093225822&vendorItemId=83290856581)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6807411588&traceid=V0-153&itemId=16093225822&vendorItemId=83290856581)
 
 ---
 
@@ -73,7 +75,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 64%  80,000   원
 - 가격: <span style='color:red'>28,420원</span>
-- 리뷰수: 3615  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5620031383&traceid=V0-153&itemId=11173554243&vendorItemId=80912391765)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5620031383&traceid=V0-153&itemId=11173554243&vendorItemId=80912391765)
 
 ---
 
@@ -90,7 +93,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>9,900원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434709537&traceid=V0-153&itemId=19318389025&vendorItemId=3361200802)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434709537&traceid=V0-153&itemId=19318389025&vendorItemId=3361200802)
 
 ---
 
@@ -107,7 +111,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 85%  300,000   원
 - 가격: <span style='color:red'>42,900원</span>
-- 리뷰수: 1428  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5940548159&traceid=V0-153&itemId=10586316015&vendorItemId=77867570464)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5940548159&traceid=V0-153&itemId=10586316015&vendorItemId=77867570464)
 
 ---
 
@@ -124,7 +129,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 54%  45,000   원
 - 가격: <span style='color:red'>20,650원</span>
-- 리뷰수: 26099  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4783821161&traceid=V0-153&itemId=6121035731&vendorItemId=73417351384)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4783821161&traceid=V0-153&itemId=6121035731&vendorItemId=73417351384)
 
 ---
 
@@ -141,7 +147,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>69,370원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6669377389&traceid=V0-153&itemId=15339005634&vendorItemId=85260910697)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6669377389&traceid=V0-153&itemId=15339005634&vendorItemId=85260910697)
 
 ---
 
@@ -158,7 +165,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434709537&traceid=V0-153&itemId=19909710733&vendorItemId=73531711712)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434709537&traceid=V0-153&itemId=19909710733&vendorItemId=73531711712)
 
 ---
 
@@ -175,7 +183,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 51%  22,500   원
 - 가격: <span style='color:red'>10,900원</span>
-- 리뷰수: 5254  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4500298441&traceid=V0-153&itemId=5401021239&vendorItemId=72701011513)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4500298441&traceid=V0-153&itemId=5401021239&vendorItemId=72701011513)
 
 ---
 
@@ -192,7 +201,8 @@ AHC 마스크팩은 **기능성 마스크팩임에도 불구하고 가격이 저
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>17,900원</span>
-- 리뷰수: 11  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544196258&traceid=V0-153&itemId=19839239781&vendorItemId=86940887339)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544196258&traceid=V0-153&itemId=19839239781&vendorItemId=86940887339)
 
 ---
 **AHC 마스크팩 구매 시 주의점**

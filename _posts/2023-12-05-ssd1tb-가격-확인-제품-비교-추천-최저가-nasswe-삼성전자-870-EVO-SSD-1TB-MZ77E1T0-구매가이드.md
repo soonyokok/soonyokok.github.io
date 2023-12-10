@@ -37,7 +37,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>127,710원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 ---
 
@@ -54,7 +55,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -71,7 +73,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>69,800원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899325276&traceid=V0-153&itemId=16588655608&vendorItemId=83773791564)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899325276&traceid=V0-153&itemId=16588655608&vendorItemId=83773791564)
 
 ---
 
@@ -88,7 +91,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>89,990원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -105,7 +109,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>67,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733)
 
 ---
 
@@ -122,7 +127,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>119,800원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6235346763&traceid=V0-153&itemId=12554363613&vendorItemId=86480566303)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6235346763&traceid=V0-153&itemId=12554363613&vendorItemId=86480566303)
 
 ---
 
@@ -139,7 +145,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>71,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655)
 
 ---
 
@@ -156,7 +163,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>83,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1309824315&traceid=V0-153&itemId=2326355746&vendorItemId=70322985909)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1309824315&traceid=V0-153&itemId=2326355746&vendorItemId=70322985909)
 
 ---
 
@@ -173,7 +181,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>69,160원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=59340200&traceid=V0-153&itemId=204796940&vendorItemId=3485373058)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=59340200&traceid=V0-153&itemId=204796940&vendorItemId=3485373058)
 
 ---
 
@@ -190,7 +199,8 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>113,500원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=15063608041&vendorItemId=82223045059)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=15063608041&vendorItemId=82223045059)
 
 ---
 **SSD 1TB 구매시 주의점**

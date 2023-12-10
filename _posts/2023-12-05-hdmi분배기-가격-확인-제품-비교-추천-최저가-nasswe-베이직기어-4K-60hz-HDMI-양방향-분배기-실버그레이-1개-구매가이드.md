@@ -51,7 +51,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>18,050원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6130731566&traceid=V0-153&itemId=11689382972&vendorItemId=78963723068)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6130731566&traceid=V0-153&itemId=11689382972&vendorItemId=78963723068)
 
 ---
 
@@ -68,7 +69,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>20,450원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5950975180&traceid=V0-153&itemId=10637895734&vendorItemId=3576591619)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5950975180&traceid=V0-153&itemId=10637895734&vendorItemId=3576591619)
 
 ---
 
@@ -85,7 +87,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>7,530원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=168473355&traceid=V0-153&itemId=482235012&vendorItemId=4212878577)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=168473355&traceid=V0-153&itemId=482235012&vendorItemId=4212878577)
 
 ---
 
@@ -102,7 +105,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>16,650원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1328306977&traceid=V0-153&itemId=2351904674&vendorItemId=70348405133)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1328306977&traceid=V0-153&itemId=2351904674&vendorItemId=70348405133)
 
 ---
 
@@ -119,7 +123,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>38,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410815990&traceid=V0-153&itemId=2447271110&vendorItemId=85801510163)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410815990&traceid=V0-153&itemId=2447271110&vendorItemId=85801510163)
 
 ---
 
@@ -136,7 +141,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>54,200원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410816310&traceid=V0-153&itemId=2447271518&vendorItemId=85801513076)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410816310&traceid=V0-153&itemId=2447271518&vendorItemId=85801513076)
 
 ---
 
@@ -153,7 +159,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>7,900원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5499171144&traceid=V0-153&itemId=8538469397&vendorItemId=75825872906)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5499171144&traceid=V0-153&itemId=8538469397&vendorItemId=75825872906)
 
 ---
 
@@ -170,7 +177,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>19,900원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227716532&traceid=V0-153&itemId=18332171622&vendorItemId=85870166464)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227716532&traceid=V0-153&itemId=18332171622&vendorItemId=85870166464)
 
 ---
 
@@ -187,7 +195,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>8,590원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2085831077&traceid=V0-153&itemId=3542980411&vendorItemId=71528950311)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2085831077&traceid=V0-153&itemId=3542980411&vendorItemId=71528950311)
 
 ---
 
@@ -204,7 +213,8 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>21,160원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1880126420&traceid=V0-153&itemId=3194901449&vendorItemId=71182320832)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1880126420&traceid=V0-153&itemId=3194901449&vendorItemId=71182320832)
 
 ---
 **HDMI 분배기 구매 시 주의점**

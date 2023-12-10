@@ -39,7 +39,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 28%  179,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721443398&traceid=V0-153&itemId=20723882100&vendorItemId=87794627360)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721443398&traceid=V0-153&itemId=20723882100&vendorItemId=87794627360)
 
 ---
 
@@ -56,7 +57,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 52  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -73,7 +75,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 61%  85,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -90,7 +93,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 쿠폰할인가 95%  98,000   원
 - 가격: <span style='color:red'>35,400원</span>
-- 리뷰수: 25  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
 
 ---
 
@@ -107,7 +111,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 즉시할인가 44%  289,000   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 255  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
 
 ---
 
@@ -124,7 +129,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: <span style='color:red'>14,580원</span>
-- 리뷰수: 690  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6844662582&traceid=V0-153&itemId=16286145634&vendorItemId=83496435208)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6844662582&traceid=V0-153&itemId=16286145634&vendorItemId=83496435208)
 
 ---
 
@@ -141,7 +147,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>59,000원</span>
-- 리뷰수: 12  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727074275&traceid=V0-153&itemId=20753682152&vendorItemId=87823986730)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727074275&traceid=V0-153&itemId=20753682152&vendorItemId=87823986730)
 
 ---
 
@@ -158,7 +165,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>39,000원</span>
-- 리뷰수: 4  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727072795&traceid=V0-153&itemId=20753674171&vendorItemId=87823978537)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7727072795&traceid=V0-153&itemId=20753674171&vendorItemId=87823978537)
 
 ---
 
@@ -175,7 +183,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 즉시할인가 84%  799,000   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 535  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
 
 ---
 
@@ -192,7 +201,8 @@ MLB 모자는 캐주얼, 스트리트, 스포츠 등 다양한 스타일에 잘 
 
 - 할인율과 원래가격: 14%  20,900   원
 - 가격: <span style='color:red'>39,000원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7729249050&traceid=V0-153&itemId=20765402804&vendorItemId=87835438986)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7729249050&traceid=V0-153&itemId=20765402804&vendorItemId=87835438986)
 
 ---
 **MLB 모자 구매 시 주의점**

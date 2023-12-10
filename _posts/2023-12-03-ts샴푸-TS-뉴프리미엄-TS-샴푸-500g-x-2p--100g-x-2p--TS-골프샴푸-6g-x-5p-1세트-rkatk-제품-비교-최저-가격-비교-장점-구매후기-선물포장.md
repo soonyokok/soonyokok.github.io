@@ -39,7 +39,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -56,7 +57,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>19,090원</span>
-- 리뷰수: 389  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
 
 ---
 
@@ -73,7 +75,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>34,240원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
 
 ---
 
@@ -90,7 +93,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>47,840원</span>
-- 리뷰수: 1403  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -107,7 +111,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357762126&traceid=V0-153&itemId=18949325576&vendorItemId=86075623723)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357762126&traceid=V0-153&itemId=18949325576&vendorItemId=86075623723)
 
 ---
 
@@ -124,7 +129,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>23,270원</span>
-- 리뷰수: 11  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240772819&traceid=V0-153&itemId=18396920596&vendorItemId=85539840573)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240772819&traceid=V0-153&itemId=18396920596&vendorItemId=85539840573)
 
 ---
 
@@ -141,7 +147,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 50%  30,000   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 269  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -158,7 +165,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 22%  45,900   원
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 79  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
 
 ---
 
@@ -175,7 +183,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>37,500원</span>
-- 리뷰수: 90  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6900074887&traceid=V0-153&itemId=16592435746&vendorItemId=86186343619)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6900074887&traceid=V0-153&itemId=16592435746&vendorItemId=86186343619)
 
 ---
 
@@ -192,7 +201,8 @@ TS샴푸는 실리콘, 파라벤, 인공 향료 등 두피와 모발에 자극�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>29,910원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6658994555&traceid=V0-153&itemId=15280673813&vendorItemId=82501166930)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6658994555&traceid=V0-153&itemId=15280673813&vendorItemId=82501166930)
 
 ---
 **TS샴푸 구매 시 주의점**

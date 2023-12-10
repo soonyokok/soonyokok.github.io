@@ -39,7 +39,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 391  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -56,7 +57,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>33,730원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6590298130&traceid=V0-153&itemId=17489242919&vendorItemId=87791808081)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6590298130&traceid=V0-153&itemId=17489242919&vendorItemId=87791808081)
 
 ---
 
@@ -73,7 +75,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>50,000원</span>
-- 리뷰수: 2448  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -90,7 +93,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>19,090원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
 
 ---
 
@@ -107,7 +111,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>50,000원</span>
-- 리뷰수: 1033  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -124,7 +129,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 85%  300,000   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 1428  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357762126&traceid=V0-153&itemId=18949325576&vendorItemId=86075623723)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357762126&traceid=V0-153&itemId=18949325576&vendorItemId=86075623723)
 
 ---
 
@@ -141,7 +147,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 2448  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -158,7 +165,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>34,240원</span>
-- 리뷰수: 12  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
 
 ---
 
@@ -175,7 +183,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>31,830원</span>
-- 리뷰수: 818  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1633684513&traceid=V0-153&itemId=18396918151&vendorItemId=85539837908)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1633684513&traceid=V0-153&itemId=18396918151&vendorItemId=85539837908)
 
 ---
 
@@ -192,7 +201,8 @@ TS샴푸는 쫀득한 제형의 샴푸로, 부드러운 사용감과 풍성한 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>47,600원</span>
-- 리뷰수: 82  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7347049685&traceid=V0-153&itemId=18897414833&vendorItemId=86636262530)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7347049685&traceid=V0-153&itemId=18897414833&vendorItemId=86636262530)
 
 ---
 **TS샴푸 구매 시 주의점**
