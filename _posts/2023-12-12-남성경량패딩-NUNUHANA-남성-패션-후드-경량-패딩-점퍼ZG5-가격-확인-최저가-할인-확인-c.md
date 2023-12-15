@@ -27,7 +27,7 @@ pin: true
 
 ## 1. NUNUHANA 남성 패션 후드 경량 패딩 점퍼#ZG5
 
-![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2a63/a7f1cd0430e2755189ab832b7239add4af580a83f78ec1199d82574a2780.jpg)
+[![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2a63/a7f1cd0430e2755189ab832b7239add4af580a83f78ec1199d82574a2780.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723610591&traceid=V0-153&itemId=20687231963&vendorItemId=87758995275)
 
 
 👍 [NUNUHANA 남성 패션 후드 경량 패딩 점퍼#ZG5 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723610591&traceid=V0-153&itemId=20687231963&vendorItemId=87758995275) 👌 
@@ -46,7 +46,7 @@ pin: true
 
 ## 2. 캐럿 남여공용 경량 범버 자켓
 
-![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2216017694578747-69c2e653-ccab-4632-bb47-b7b9403552af.jpg)
+[![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2216017694578747-69c2e653-ccab-4632-bb47-b7b9403552af.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2111546173&traceid=V0-153&itemId=3586762063&vendorItemId=71572557005)
 
 
 👍 [캐럿 남여공용 경량 범버 자켓 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2111546173&traceid=V0-153&itemId=3586762063&vendorItemId=71572557005) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. UPPERCUT 남성 하이넥 융기모 경량패딩 빅사이즈 점퍼
 
-![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/90b4/ad56f873e7a6db7fac669cc28376e37301081ca421f4fbbeb6cc980a0173.jpg)
+[![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/90b4/ad56f873e7a6db7fac669cc28376e37301081ca421f4fbbeb6cc980a0173.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7665163903&traceid=V0-153&itemId=20431727760&vendorItemId=87416810554)
 
 
 👍 [UPPERCUT 남성 하이넥 융기모 경량패딩 빅사이즈 점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7665163903&traceid=V0-153&itemId=20431727760&vendorItemId=87416810554) 👌 
@@ -84,7 +84,7 @@ pin: true
 
 ## 4. [가을겨울용]김영주스포츠 남성 웰론 경량 패딩 점퍼 MJ100
 
-![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7211/92120702e0c908acde7562b71a35e4b8127a435ef3f2e1d115efc5831f5a.jpg)
+[![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7211/92120702e0c908acde7562b71a35e4b8127a435ef3f2e1d115efc5831f5a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494914965&traceid=V0-153&itemId=19606674877&vendorItemId=87188211412)
 
 
 👍 [[가을겨울용]김영주스포츠 남성 웰론 경량 패딩 점퍼 MJ100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494914965&traceid=V0-153&itemId=19606674877&vendorItemId=87188211412) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 라이렉스 방한 깔깔이 기모 겨울 군인 군대 점퍼 방상내피 깔바지
 
-![남성경량패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e737/a0f0bd4545c6783bb10c3fd4207db47a7791440b6bbfc537e04c6db4b4d1.jpg)
+[![남성경량패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e737/a0f0bd4545c6783bb10c3fd4207db47a7791440b6bbfc537e04c6db4b4d1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6119836063&traceid=V0-153&itemId=11592918185&vendorItemId=78867740344)
 
 
 👍 [라이렉스 방한 깔깔이 기모 겨울 군인 군대 점퍼 방상내피 깔바지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6119836063&traceid=V0-153&itemId=11592918185&vendorItemId=78867740344) 👌 
@@ -122,7 +122,7 @@ pin: true
 
 ## 6. 남성용 경량 웰론 퀼팅 패딩 자켓
 
-![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/68ca/8a8bd4b0a429e0dffed63de7cb13704348598a8b484c95931d661ea8272f.jpg)
+[![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/68ca/8a8bd4b0a429e0dffed63de7cb13704348598a8b484c95931d661ea8272f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634511941&traceid=V0-153&itemId=20270012090&vendorItemId=87487822956)
 
 
 👍 [남성용 경량 웰론 퀼팅 패딩 자켓 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634511941&traceid=V0-153&itemId=20270012090&vendorItemId=87487822956) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. 김영주 남성 리안 경량 패딩 자켓 / 남자 골프 등산 겨울 패딩점퍼
 
-![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/32fe/5cef05f5fb5a14da66366f7de1dfb3998b727c8da77d5dc61faa3e13fda9.jpg)
+[![남성경량패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/32fe/5cef05f5fb5a14da66366f7de1dfb3998b727c8da77d5dc61faa3e13fda9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634360987&traceid=V0-153&itemId=20269307629&vendorItemId=87427231190)
 
 
 👍 [김영주 남성 리안 경량 패딩 자켓 / 남자 골프 등산 겨울 패딩점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634360987&traceid=V0-153&itemId=20269307629&vendorItemId=87427231190) 👌 
@@ -160,7 +160,7 @@ pin: true
 
 ## 8. 밀레 [가을겨울] 남자 품질 좋고 가격 착하고 따뜻하고 가볍고 모든걸 갖춘 대박 할인! 남성 경량 패딩 다운 자켓 / PAUL0317
 
-![남성경량패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d31c/d9da24b88816de93f8fb5ca8bda34b39d2258479784ab02259c5810701be.png)
+[![남성경량패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d31c/d9da24b88816de93f8fb5ca8bda34b39d2258479784ab02259c5810701be.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7639098895&traceid=V0-153&itemId=20292493216&vendorItemId=87378701350)
 
 
 👍 [밀레 [가을겨울] 남자 품질 좋고 가격 착하고 따뜻하고 가볍고 모든걸 갖춘 대박 할인! 남성 경량 패딩 다운 자켓 / PAUL0317 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7639098895&traceid=V0-153&itemId=20292493216&vendorItemId=87378701350) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. 아리스토우 남성 딜라이트 패딩 점퍼 경량 자켓
 
-![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6023/53137a1f293866a9808710fb5137db5d32ee81a709df647c45707dd5e92d.jpg)
+[![남성경량패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6023/53137a1f293866a9808710fb5137db5d32ee81a709df647c45707dd5e92d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621556062&traceid=V0-153&itemId=20207752546&vendorItemId=87297957348)
 
 
 👍 [아리스토우 남성 딜라이트 패딩 점퍼 경량 자켓 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621556062&traceid=V0-153&itemId=20207752546&vendorItemId=87297957348) 👌 
@@ -198,7 +198,7 @@ pin: true
 
 ## 10. 남자 경량 덕다운 오리털 패딩 잠바
 
-![남성경량패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf31/4ba893250e1e5ffc9dc0f0006e7cb79afd2aff3d911ebb566f4654a2d9fc.jpg)
+[![남성경량패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf31/4ba893250e1e5ffc9dc0f0006e7cb79afd2aff3d911ebb566f4654a2d9fc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687284905&traceid=V0-153&itemId=20547403974&vendorItemId=87623777422)
 
 
 👍 [남자 경량 덕다운 오리털 패딩 잠바 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687284905&traceid=V0-153&itemId=20547403974&vendorItemId=87623777422) 👌 

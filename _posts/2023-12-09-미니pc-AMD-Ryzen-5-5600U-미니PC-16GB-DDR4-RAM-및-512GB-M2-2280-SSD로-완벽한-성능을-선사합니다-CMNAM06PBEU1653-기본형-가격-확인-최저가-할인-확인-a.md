@@ -41,7 +41,7 @@ pin: true
 
 ## 1. AMD Ryzen 5 5600U 미니PC 16GB DDR4 RAM 및 512GB M.2 2280 SSD로 완벽한 성능을 선사합니다!, CMNAM06PBEU1653, 기본형
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/82fa/96e379851963183dd187105ffdb62e6a5fbb2ab438a5dc0e9101b79221bc.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/82fa/96e379851963183dd187105ffdb62e6a5fbb2ab438a5dc0e9101b79221bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7153521758&traceid=V0-153&itemId=17989483155&vendorItemId=85146096719)
 
 
 👍 [AMD Ryzen 5 5600U 미니PC 16GB DDR4 RAM 및 512GB M.2 2280 SSD로 완벽한 성능을 선사합니다!, CMNAM06PBEU1653, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7153521758&traceid=V0-153&itemId=17989483155&vendorItemId=85146096719) 👌 
@@ -60,7 +60,7 @@ pin: true
 
 ## 2. 한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 256GB, 12세대 N100
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4f0/eff3428a149cf529be72b8ed4406022a16f25ffd360273d1fe5172067c34.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4f0/eff3428a149cf529be72b8ed4406022a16f25ffd360273d1fe5172067c34.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606691&vendorItemId=87835921876)
 
 
 👍 [한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 256GB, 12세대 N100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606691&vendorItemId=87835921876) 👌 
@@ -79,7 +79,7 @@ pin: true
 
 ## 3. 한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 8GB, 256GB, 8GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7758571597&traceid=V0-153&itemId=20917442842&vendorItemId=85324477222)
 
 
 👍 [한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 8GB, 256GB, 8GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7758571597&traceid=V0-153&itemId=20917442842&vendorItemId=85324477222) 👌 
@@ -98,7 +98,7 @@ pin: true
 
 ## 4. 피코펄스 미니PC n100 (win11 포함), DDR5 16G SSD 512GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c712/f14560444c9175b15f4d6c2f96c8b1ae45240227de71787066e02fd60446.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c712/f14560444c9175b15f4d6c2f96c8b1ae45240227de71787066e02fd60446.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748712743&traceid=V0-153&itemId=20866137563&vendorItemId=87760507904)
 
 
 👍 [피코펄스 미니PC n100 (win11 포함), DDR5 16G SSD 512GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748712743&traceid=V0-153&itemId=20866137563&vendorItemId=87760507904) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 5. 델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 01.Core-i3/8GB/128GB, 기본형
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/18f6/69d92789612fcc537524bf4e8386b37562cca8c2b3e57a123c9ee06147fd.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/18f6/69d92789612fcc537524bf4e8386b37562cca8c2b3e57a123c9ee06147fd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512048&vendorItemId=85659175751)
 
 
 👍 [델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 01.Core-i3/8GB/128GB, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512048&vendorItemId=85659175751) 👌 
@@ -136,7 +136,7 @@ pin: true
 
 ## 6. 델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 04.Core-i3/16GB/256GB+500GB, 기본형
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9dd5/b2d28272fba3d9e27c4e4bd29af976b47b9c34673cb0be51218670024b49.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9dd5/b2d28272fba3d9e27c4e4bd29af976b47b9c34673cb0be51218670024b49.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512056&vendorItemId=85659175770)
 
 
 👍 [델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 04.Core-i3/16GB/256GB+500GB, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512056&vendorItemId=85659175770) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 7. GEEKOM 미니PC 셀러론 N5095 WIN11 Home NVMe 256GB DDR4 8GB, MiniAir 11, 기본형
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652)
 
 
 👍 [GEEKOM 미니PC 셀러론 N5095 WIN11 Home NVMe 256GB DDR4 8GB, MiniAir 11, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652) 👌 
@@ -174,7 +174,7 @@ pin: true
 
 ## 8. 델 미니PC WIN10 인텔 I5 8세대 MINIPC 데스크탑 미니 본체 3060Micro, RAM 8GB + SSD 256GB
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c19d/4f2d86a5a1c8692f362b5bd92d1201cf616a5221fdd590a25c7d3e7d7ae9.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c19d/4f2d86a5a1c8692f362b5bd92d1201cf616a5221fdd590a25c7d3e7d7ae9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694979717&traceid=V0-153&itemId=20587054305&vendorItemId=87661980254)
 
 
 👍 [델 미니PC WIN10 인텔 I5 8세대 MINIPC 데스크탑 미니 본체 3060Micro, RAM 8GB + SSD 256GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694979717&traceid=V0-153&itemId=20587054305&vendorItemId=87661980254) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 9. [최신 인텔13세대!/쿠팡 단독]삼성 올인원PC DM530AFA-L78A 최신 13세대 i7 CPU 인터넷 강의 온라인 사무용 일체형 데스크탑 컴퓨터, 1.기본(램 8GB), 1.기본(SSD 512GB), 1.기본(HDD 없음)
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ca36/1da6286ac46168c8ace19a365ffa2f3b09a467127e01f280709d8f67f567.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ca36/1da6286ac46168c8ace19a365ffa2f3b09a467127e01f280709d8f67f567.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6250684573&traceid=V0-153&itemId=12668931520&vendorItemId=79936068203)
 
 
 👍 [[최신 인텔13세대!/쿠팡 단독]삼성 올인원PC DM530AFA-L78A 최신 13세대 i7 CPU 인터넷 강의 온라인 사무용 일체형 데스크탑 컴퓨터, 1.기본(램 8GB), 1.기본(SSD 512GB), 1.기본(HDD 없음) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6250684573&traceid=V0-153&itemId=12668931520&vendorItemId=79936068203) 👌 
@@ -212,7 +212,7 @@ pin: true
 
 ## 10. 한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 512GB, 16GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7758571597&traceid=V0-153&itemId=20917442844&vendorItemId=85324477212)
 
 
 👍 [한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 512GB, 16GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7758571597&traceid=V0-153&itemId=20917442844&vendorItemId=85324477212) 👌 
